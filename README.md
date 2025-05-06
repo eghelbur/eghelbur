@@ -9,7 +9,7 @@
 📫 How to reach me:
 - Email: e.ghelbur@gmail.com  
 - LinkedIn: [[My LinkedIn Profile]](https://www.linkedin.com/in/eugeniu-ghelbur/)
-- My Portfolio: [[My Portfolio]](https://eghelbur.notion.site/Eugeniu-Ghelbur-15fa22b64cf180d0aae2c19061f1b539)
+- Portfolio: [[My Portfolio]](https://eghelbur.notion.site/Eugeniu-Ghelbur-15fa22b64cf180d0aae2c19061f1b539)
 
 ⚡ Fun fact: I am passionate about transforming raw data into actionable insights that drive business decisions.
 
